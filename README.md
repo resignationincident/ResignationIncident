@@ -7,3 +7,9 @@
 
 
 　　　　　　　　　　　　　　　　　　　　　　　　[rentry](https://rentry.co/spongeboymebob)　　/　　[atabook](https://armond.atabook.org)
+
+　　　　　　　　　　　
+　　　　　　　　　　　　　　　　　　　　　　
+　　　　　　　　　　　
+
+　　　　　　　　　　　　　　my awesome friends @Vinford268 @Kip-LokiLaufeyson @LarryVexler 
