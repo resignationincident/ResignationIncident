@@ -1,4 +1,8 @@
 
+　　　　　　　　　　　
+　　　　　　　　　　　　　　　　　　　　　　
+　　　　　　　　　　　
+
 　　　 "You're not getting out."
 
 　　　<img width="768" height="469" alt="image" src="https://github.com/user-attachments/assets/b5dc01fb-c99a-4ae8-a639-4cf13037dbbc" />
@@ -8,8 +12,7 @@
 
 　　　　　　　　　　　　　　　　　　　　　　　　[rentry](https://rentry.co/spongeboymebob)　　/　　[atabook](https://armond.atabook.org)
 
+
 　　　　　　　　　　　
 　　　　　　　　　　　　　　　　　　　　　　
 　　　　　　　　　　　
-
-　　　　　　　　　　　　　　my awesome friends @Vinford268 @Kip-LokiLaufeyson @LarryVexler 
