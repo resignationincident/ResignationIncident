@@ -1,5 +1,9 @@
-<img width="640" height="480" alt="image" src="https://github.com/user-attachments/assets/5933472f-d609-49a5-acb4-eba42da6e876" />
-<img width="627" height="26" alt="image" src="https://github.com/user-attachments/assets/9b7ce972-1d11-4706-9eb5-afc6cd282ad4" /> << :D
+
+　　　 "You're not getting out."
+
+　　　<img width="768" height="469" alt="image" src="https://github.com/user-attachments/assets/b5dc01fb-c99a-4ae8-a639-4cf13037dbbc" />
+
+　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　"Until then, I have no business speaking to you."
 
 
-i am selective mute !! its unlikely i will indulge in conversation if u are not my friend
+　　　　　　　　　　　　　　　　　　　　　　　　[rentry](https://rentry.co/spongeboymebob)　　/　　[atabook](https://armond.atabook.org)
